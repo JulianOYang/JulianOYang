@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JulianOYang
+- 👀 I’m interested in learning stuff that doesn't matter 
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on nthn actually 
+- 📫 How to reach me stardustone.xyz+official@gmail.com
